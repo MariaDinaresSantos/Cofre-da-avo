@@ -4,6 +4,8 @@ Uma receita da família **Santos**
 
 ---
 
+[Arroz Doce](../imagens/arrozdoce.jpg)
+
 ## Ingredientes
 
 - 100 g de arroz carolino  
